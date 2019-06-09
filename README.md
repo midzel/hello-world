@@ -1,2 +1,2 @@
 # hello-world
-Im lost
+Im lost, i nemam inspiraciju
